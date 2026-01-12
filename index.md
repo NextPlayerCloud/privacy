@@ -42,4 +42,5 @@ This Privacy Policy may be updated from time to time. Changes will be posted on 
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-Email: your-email@example.com
+Email: developvplayer@gmail.com
+
